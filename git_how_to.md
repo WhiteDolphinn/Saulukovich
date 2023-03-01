@@ -1,4 +1,3 @@
-gdvjidlsvdfvdflsd;fnvdvfkdvldvdfkds
-njvdkldfnvdlsvbnvd;svnsvssl
-dfvnldsvnvdf;vdnvsdvlnfvlsdns
-vd;vnvnvdflvdfvfvlfnvdflvd
+Открыть сайт youtube.com
+Зайти на канал ant-lab.ru
+Посмотреть ролики 3.1 3.2 3.3 3.4
